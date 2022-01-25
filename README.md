@@ -1,2 +1,3 @@
-### Hi there 👋
-- 📫 How to reach me: My discord tag is Neon#4488
+🔈 Pronouns: xe/xem
+🧍 Name: Neon
+🗨️ Discord: Neon#4488
