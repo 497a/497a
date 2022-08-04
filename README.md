@@ -1,3 +1,3 @@
-🔈 Pronouns: she/her, xe/xem
+🔈 Pronouns: xe/xem
 🧍 Name: Neon
 🗨️ Discord: Neon#4488
