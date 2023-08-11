@@ -1,3 +1,4 @@
 🔈 Pronouns: they/she
 🧍 Name: Izzie
-🗨️ Discord: Izzie#4488
+🗨️ Discord: 497a
+🗨️ Matrix: @izzie:transgirl.cafe
