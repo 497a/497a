@@ -1,4 +1,4 @@
-🔈 Pronouns: they/them
-🧍 Name: Izzie
+🔈 Pronouns: they/it
+🧍 Name: Void/Izzie
 🗨️ Discord: 497a
 🗨️ Matrix: @izzie:transgirl.cafe
